@@ -1,5 +1,5 @@
 ---
-title: Nephrologist in Vijayawada
+Nephrologist in Vijayawada
 
 Sunrise Kidney Hospital - Best Nephrologist in Vijayawada
 Kidney diseases are becoming increasingly common, but with the right treatment and care, their progression can be managed effectively. If you're seeking a nephrologist in Vijayawada, look no further than Sunrise Kidney Hospital, where cutting-edge treatments and compassionate care come together to help you manage and recover from kidney ailments.
@@ -27,6 +27,5 @@ For individuals seeking the best nephrologist in Vijayawada, Sunrise Kidney Hosp
 For More Information,
 Contact: +91-63024 87967, +91-99491 05936
 Website: https://www.sunrisekidneycentre.com/
-
 ---
 
